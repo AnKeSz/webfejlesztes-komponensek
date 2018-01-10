@@ -1,0 +1,1 @@
+Footer mintakat tartalmazo mappa.
